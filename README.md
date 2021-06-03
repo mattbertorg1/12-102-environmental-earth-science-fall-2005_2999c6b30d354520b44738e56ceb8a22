@@ -1,0 +1,1 @@
+# 12-102-environmental-earth-science-fall-2005_2999c6b30d354520b44738e56ceb8a22
